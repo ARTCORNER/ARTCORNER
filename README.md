@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GrudingNature22
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Python and Java
+- 📫 Contact me using Discord GrudingNature22#0896
